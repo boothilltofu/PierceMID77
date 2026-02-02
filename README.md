@@ -1,4 +1,10 @@
-## Hi there 👋
+## Hii! Call me Lef Or Piec
+<img width="411" height="250" alt="image" src="https://github.com/user-attachments/assets/341bee0b-054c-4c41-b307-8f376b29aa62" />
+
+
+     I mostly Like Pierce and or Asch!
+
+<img width="494" height="245" alt="image" src="https://github.com/user-attachments/assets/4d1ffb87-e64c-4fe3-accb-9e5ee16aab42" />
 
 <!--
 **PierceMID77/PierceMID77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
